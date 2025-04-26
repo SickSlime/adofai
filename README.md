@@ -1,3 +1,3 @@
-Here are some custom adofai levels of <color=#00ffff>mine<\color>.
+Here are some custom adofai levels of mine.
 <br>
-I love <b>adofai~<\b>
+I love <b>adofai~
